@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **karanverma8315@gmail.com**
 
-- 📄My Cv([https://drive.google.com/file/d/1-q_x7tWMDAb_TducVaNhT10cs--cnRsH/view?usp=drive_link](https://drive.google.com/file/d/1ML1zmRGfabOAUZKYAslCeu6SGaX-PPiR/view?usp=drive_link])
+- 📄My Cv([](https://drive.google.com/file/d/1ML1zmRGfabOAUZKYAslCeu6SGaX-PPiR/view?usp=drive_link])
 
 - ⚡ Fun fact **I like to play chess and go to gym.**
 
